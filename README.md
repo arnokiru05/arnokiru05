@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @arnokiru05
 - 👀 I’m interested in data science.
 - 🌱 I’m currently learning...
-- 📫 How to reach me +254758720620
+- 📫 How to reach me +254769567516
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: Gemini.
 
